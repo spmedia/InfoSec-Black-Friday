@@ -518,7 +518,11 @@ NOTE: This website appears AI-generated, and offers NO REFUNDS. DYOR.
 
 ## Misc:
 
-Vetting Deals.
+**Neato Stickers** - Hacking & Cybersecurity related stickers :new: \
+https://neatstickersco.etsy.com/  
+15% off all stickers and merch
+Deal Ends: 13th December
+
 
 -----------------------------------------------------------------------------------------
 
